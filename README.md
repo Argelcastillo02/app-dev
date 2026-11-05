@@ -8,7 +8,7 @@
  
 *"Hey, High School Musical / Where you from, One Direction?"*
  
-**Why i love this movies**
+**Why i love this movie**
  
 I love this movie because it is funny and has a beautiful beach
  
@@ -32,6 +32,6 @@ i love this movie because of how special their friendship is and their travellin
 
 *"There's no 'wax on wax off' with drifting. You learn by doing it... So feel it."*
 
-**Why i love this movies**
+**Why i love this movie**
 
 i love this movie because it's about cars and raw art of drifting in neon-lit Tokyo streets.
