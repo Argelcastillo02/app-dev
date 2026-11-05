@@ -31,3 +31,7 @@ i love this movie because of how special their friendship is and their travellin
 **favorite line**
 
 *"There's no 'wax on wax off' with drifting. You learn by doing it... So feel it."*
+
+**Why i love this movies**
+
+i love this movie because it's about cars and raw art of drifting in neon-lit Tokyo streets.
